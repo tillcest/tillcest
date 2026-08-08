@@ -46,4 +46,5 @@
     <img src="https://cdn.discordapp.com/attachments/1282985399051878441/1535681151119786134/Untitled159_20260809000808.png?ex=6a78a606&is=6a775486&hm=2873d7a032424a44eff8a7faa3596487cbaf0c40a5d1d4d7ea31da62f8a4d90c&" alt="atabook" width="300" >
 </a></p>
 
-                                                                <p align="center"><a href="https://github.com/pawspaw"> credits to gay </a></p>
+                                                                                                                                                      
+<p align="center"><a href="https://github.com/pawspaw">credits to gay</a></p>
