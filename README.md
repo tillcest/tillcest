@@ -1,4 +1,4 @@
-   <p align="center"><a href="https://github.com/pawspaw">credits to gay.</a></p>                                                              
+   <p align="center"><a href="https://github.com/pawspaw">credits to gay</a></p>                                                              
 
 <p align ="center"><img src="https://visitor-badge.laobi.icu/badge?page_id=tillcest.visitor-badge&left_text=%CB%B6%3E%60%E2%80%B8%C2%B4%3C%CB%B6&left_color=%238f8f8f&right_color=%23000000&radius=0&height=17" alt="visitor badge"/></p>
 
