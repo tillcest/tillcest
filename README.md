@@ -36,7 +36,8 @@
 
 #
 
-<p align ="center"><img src="https://cdn.discordapp.com/attachments/1282985399051878441/1535675386740871261/Untitled153_20260808234526.png?ex=6a78a0a7&is=6a774f27&hm=8874f4c1825be41d065e5e2f0e3ead0a29d138d0845e2e1e28f394ffe2dc6942&" alt="till" width="500" /></p>
+<p align="center"><img width="500" alt="image" src="https://github.com/user-attachments/assets/2529885a-d924-43a6-a647-8388d6acd640" /><p align="center">
+
 
 
 
