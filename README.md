@@ -2,7 +2,8 @@
 
 <p align ="center"><img src="https://visitor-badge.laobi.icu/badge?page_id=tillcest.visitor-badge&left_text=%CB%B6%3E%60%E2%80%B8%C2%B4%3C%CB%B6&left_color=%238f8f8f&right_color=%23000000&radius=0&height=17" alt="visitor badge"/></p>
 
-<p align ="center"><img src="https://cdn.discordapp.com/attachments/1282985399051878441/1535672119399288863/Untitled153_20260808232249.png?ex=6a789d9c&is=6a774c1c&hm=dba2da0082dc20049f18f091b34890f1b73b01738938a31cda42c016ed63b0cb&" alt="the weeknd"width="500" /></p>
+<img width="736" height="272" alt="image" src="https://github.com/user-attachments/assets/5634ce24-d7c6-4cdf-bd5e-85133a56897a" />
+
 
 <p align="center"><img src="https://cdn.discordapp.com/attachments/1282985399051878441/1535654625233997844/a56de0a7.gif?ex=6a788d51&is=6a773bd1&hm=52ff48cd25eb79cf290a4ccbd42403225d18b1421195fc99b399be994cc9bf0b&" alt="die" width="50" /></p>
 
