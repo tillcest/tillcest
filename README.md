@@ -37,5 +37,9 @@
 
 <p align="center"><img src="https://cdn.discordapp.com/attachments/1282985399051878441/1546074555791970334/Untitled228_20260906160743.png?ex=6a9e75a2&is=6a9d2422&hm=c2e179dc72a672f3d257b2b53eef94bd856fbb58cfc874937058b3c1ddbefc45&" alt="divider" width="300" ></p>
 
-<p align="center">insert Spotify link here hi</p>
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31eq3jop55rtblwgtt7yiz2rocia&cover_image=false&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true">
+  </a>
+</p>
 ㅤㅤㅤㅤㅤㅤㅤ
