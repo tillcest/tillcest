@@ -22,7 +22,8 @@
 
 
 
-<p align="center"><img src="https://cdn.discordapp.com/attachments/1282985399051878441/1546081992217595984/Untitled228_20260906165726.png?ex=6a9e7c8f&is=6a9d2b0f&hm=0c4adbb220ce44b3ba9c457c40b7c7694b9b936b425a5b9aff8e8b7defaa4b39&" alt="divider" width="200" ></p>ㅤㅤㅤㅤㅤㅤㅤ
+<p align="center"><img width="300" alt="image" src="https://github.com/user-attachments/assets/26db7f7b-ca9d-4d9f-b5d7-38429cba00f2" />
+ㅤㅤㅤㅤㅤㅤㅤ
 
 
 
