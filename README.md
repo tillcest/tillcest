@@ -1,5 +1,6 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ@hoobae made it hi 
-<p align="center"><img src="https://cdn.discordapp.com/attachments/1282985399051878441/1546078594168782878/Untitled228_20260906164406.png?ex=6a9e7965&is=6a9d27e5&hm=8b33ba1d58446e32ae9218865031d1e5ec404debc33b786e19f72c012cde03fa&" alt="ivti" width="550" ></p>
+<p align="center"><img width="550" alt="image" src="https://github.com/user-attachments/assets/d3080222-7c10-4a7b-85ad-73ed8b263c32" /><p align="center">
+
 
 
 
