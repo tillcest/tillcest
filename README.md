@@ -6,7 +6,7 @@
 
 
 
-<p align="center"><img src="https://cdn.discordapp.com/attachments/1282985399051878441/1546074555791970334/Untitled228_20260906160743.png?ex=6a9e75a2&is=6a9d2422&hm=c2e179dc72a672f3d257b2b53eef94bd856fbb58cfc874937058b3c1ddbefc45&" alt="divider" width="300" ></p>
+<img width="300" alt="image" src="https://github.com/user-attachments/assets/ec16670a-0478-4527-9569-279ba3a630d4" />
 
 
 <p align="center"><img src="https://visitor-badge.laobi.icu/badge?page_id=tillcest.visitor-badge&left_text=%CB%B6%3E%60%E2%80%B8%C2%B4%3C%CB%B6&left_color=%23F3F0E9&right_color=%23B9C9D3&radius=0&height=15" alt="visitor badge" width="80" /></p>
