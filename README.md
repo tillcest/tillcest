@@ -12,7 +12,8 @@
 
 <p align="center"><img src="https://visitor-badge.laobi.icu/badge?page_id=tillcest.visitor-badge&left_text=%CB%B6%3E%60%E2%80%B8%C2%B4%3C%CB%B6&left_color=%23F3F0E9&right_color=%23B9C9D3&radius=0&height=15" alt="visitor badge" width="80" /></p>
  ㅤㅤㅤㅤㅤㅤㅤ
-<p align="center"><img src="https://cdn.discordapp.com/attachments/1282985399051878441/1546074469766795324/Untitled227_20260906124822.png?ex=6a9e758e&is=6a9d240e&hm=a8096f2120f2e56a02cb8cd2b87b5c5a71c12537a0048133e865aecb9eb2b6c5&" alt="ti" width="300" ></p>ㅤㅤㅤㅤㅤㅤㅤ
+<p align="center"><img width="640" height="592" alt="image" src="https://github.com/user-attachments/assets/da3f540d-0148-465a-88cc-f81c4785d6c6" /><p align="center">
+ㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
 
