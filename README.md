@@ -30,8 +30,8 @@
 
 
 <p align="center"><a href="https://guns.lol/tillcest"><img width="150" alt="image" src="https://github.com/user-attachments/assets/28ca4acc-6dc7-484d-903f-1d321bf510ce" />
-</a> <img width="150" alt="image" src="https://github.com/user-attachments/assets/30209998-92a2-4dc2-a842-93e2e02049fb" />
-</a> <a href="https://tillcest.atabook.org/">
+</a> <a href="https://tillcest.atabook.org/"><img width="150" alt="image" src="https://github.com/user-attachments/assets/30209998-92a2-4dc2-a842-93e2e02049fb" />
+</a> 
 
 ㅤㅤㅤㅤㅤㅤㅤ
 
