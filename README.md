@@ -1,5 +1,5 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ@hoobae made it hi 
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ no you CANNOT take inspo or copy my skins bro
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ         ㅤㅤㅤ       ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ no you CANNOT take inspo or copy my skins bro
 <p align="center"><img width="550" alt="image" src="https://github.com/user-attachments/assets/d3080222-7c10-4a7b-85ad-73ed8b263c32" /><p align="center">
 
 
