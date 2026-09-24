@@ -11,7 +11,7 @@
 <p align="center"><img width="300" alt="image" src="https://github.com/user-attachments/assets/ec16670a-0478-4527-9569-279ba3a630d4" /><p align="center">
 
 
-<p align="center"><img src="https://visitor-badge.laobi.icu/badge?page_id=tillcest.visitor-badge&left_text=%CB%B6%3E%60%E2%80%B8%C2%B4%3C%CB%B6&left_color=%23F3F0E9&right_color=%23B9C9D3&radius=0&height=15" alt="visitor badge" width="80" /></p>
+<p align="center"><img src="https://visitor-badge.laobi.icu/badge?page_id=tillcest.visitor-badge&left_text=˶>%60‸´<˶&left_color=%23F3F0E9&right_color=%23B9C9D3&radius=0&height=15" alt="visitor badge" width="80" /></p>
  ㅤㅤㅤㅤㅤㅤㅤ
 <p align="center"><img width="300" alt="image" src="https://github.com/user-attachments/assets/da3f540d-0148-465a-88cc-f81c4785d6c6" /><p align="center">
 ㅤㅤㅤㅤ
