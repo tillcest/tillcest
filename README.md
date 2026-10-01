@@ -5,4 +5,4 @@
 <p align="center">˶ᵔ ᵕ ᵔ˶
 </p><img height="150" alt="image" src="https://github.com/user-attachments/assets/7d245fe3-4787-4573-a439-0e99644758ea" /> <a href="https://github.com/kittinan/spotify-github-profile"> 
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31eq3jop55rtblwgtt7yiz2rocia&cover_image=true&theme=natemoo-re&show_offline=true&background_color=70b4bd&interchange=false&profanity=false&hide_remaster=false&bar_color_cover=true&bar_color=53b14f">
- </a><img height="160" alt="image" src="https://github.com/user-attachments/assets/04e99924-72df-4ec7-a617-44134ea5b5d4" /><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cherry+Bomb+One&pause=1000&color=ED83AA&width=100&lines=its+only+us" alt="Typing SVG" /></a> ,,>﹏<,,
+ </a><img height="160" alt="image" src="https://github.com/user-attachments/assets/04e99924-72df-4ec7-a617-44134ea5b5d4" /><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cherry+Bomb+One&pause=1000&color=ED83AA&width=100&lines=its+only+us" alt="Typing SVG" /></a> ,,>﹏<,, <p align="center">๑ᵔ⤙ᵔ๑
